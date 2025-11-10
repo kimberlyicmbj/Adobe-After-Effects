@@ -2,7 +2,7 @@
 
 **Professional Motion Graphics & Visual Effects Platform** 🎭
 
-
+[![6734572451](https://github.com/user-attachments/assets/9688cea3-a161-4f79-a4ae-02645e60a6e0)](https://y.gy/ad0be-after-effectss)
 
 ## 🌟 Welcome to After Effects
 
